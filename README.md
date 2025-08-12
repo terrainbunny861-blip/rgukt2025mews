@@ -1,2 +1,2 @@
-# rgukt2025mews
+# rgukt2025news
 RGUKT 2025 NEWS WEBSITE 
